@@ -1,0 +1,1 @@
+# insane0777.github.io
